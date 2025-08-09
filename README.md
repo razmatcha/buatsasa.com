@@ -1,2 +1,0 @@
-# buatsasa.com
-saa
